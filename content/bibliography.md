@@ -4,7 +4,6 @@ shortTitle: Bibliography
 weight: 500
 date: 2022-10-21T20:40:49.066Z
 ---
-<!--StartFragment-->
 
 **Sufism in India:** The Sharif Dargah at Ajmer is the tomb of a Sufi saint, and as such, requires a foundational knowledge of Sufism in India. These materials provide anti-essentialist perspectives that delineate the overlap between Sufism and other religions, and as such, are useful when discussing inter-religious practices in Sufi spaces.
 
@@ -52,6 +51,3 @@ Currie provides us with a study of Ajmer Sharif in the context of the developmen
 
 This book seeks to identify and summarize key aspects of the Chishti Order by discussing texts and figures that were heretofore unutilized in the historiography of Sufism. In the introduction, the authors reject the focus which scholars place on seemingly foundational figures and moments, seeking to “winnow the few pellets of truth lying beneath all the accumulated dross of legend and superstition” (48). The authors instead choose to focus on the patterns of practices and hagiography within the Chishti order, noting that many of these were adopted from other Sufi traditions, thus making it difficult to define one Sufi tradition without overlapping another. Additionally, the authors seek to combat the rhetoric of decline and revival, citing the continuity of Chishti traditions and practices. This book also includes a comprehensive bibliography of scholarship and primary sources, making it essential for further study into the Chishti Order.
 
-
-
-<!--EndFragment-->
