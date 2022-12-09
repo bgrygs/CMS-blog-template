@@ -14,7 +14,7 @@ The most common reason to visit the tomb is to ask Saint Mu’in al-Din for a fa
 
 The most common way of tapping into this spiritual power is through physical interaction. In footage of crowds entering the dargah, it is common to see devotees touch the walls as they enter. For example, at 13:23 in the video linked below, a man stretches out his arms to touch the walls, and then brings his hands to his forehead while entering. Another custom is to bow low and kiss the tomb upon entering. These gestures mark the transmission of baraka. By coming into contact with the shrine, the devotees passively acquire its spiritual power; however, these gestures are also forms of showing respect for Mu’in al-Din.
 
-> [\> https://www.youtube.com/watch?v=JUr37Qbt0ok](<> https://www.youtube.com/watch?v=JUr37Qbt0ok>)
+[\> https://www.youtube.com/watch?v=JUr37Qbt0ok](<> https://www.youtube.com/watch?v=JUr37Qbt0ok>)
 
 Another form of respect is to bring offerings, the most common of which are rose petals and chadars. The offering of rose petals stems from an Islamic tradition in which Muhammad described the red rose as a manifestation of Allah’s glory. These rose petals, having come into contact with the tomb of Mu’in al-Din, are imbued with baraka. Some are given away to be eaten, thus transmitting the petal’s baraka to the devotee. The chadars are brought by groups of pilgrims, and their construction varies from the cheapest materials to embroidered silks and velvets. As the pilgrims carry the large cloth through the streets leading to the shrine, onlookers touch it as it passes them, perhaps as a way of indirectly coming into contact with the tomb. Thus, both chadars and rose petals are part of the ongoing transmission of baraka at the Ajmer Sharif.
 
